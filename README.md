@@ -1,6 +1,6 @@
 ### 嘎嘣不太脆 ![](https://visitor-badge.laobi.icu/badge?page_id=zaze359)
 
-偶尔写写代码~
+一天看不完2页书
 
 [学习小抄本](https://www.jokecoder.com/Learning-notes/#/)
 
